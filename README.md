@@ -1,7 +1,4 @@
-- Hiya!
-- so.. this isnt really my profile.. but.. ASD was like: yknow what, ill let ya merge the accs
-- Its a me! Osaka!
-- ..yea my old acc was deleted lolol
+- We are so back and im sorting out all the bs
 
 <!---
 asdwastakenig/asdwastakenig is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
